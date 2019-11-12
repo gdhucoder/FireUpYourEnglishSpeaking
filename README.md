@@ -1,10 +1,10 @@
 # Fire Up Your English Speaking
 
-I was so ... excited today. I think I find a effective method to improve your speaking English. I will call it ***Insane Speaking***.
+I was so ... excited today. I think I find an effective method to improve your speaking English. I will call it ***Insane Speaking***.
 
 ## Insane Speaking
 
-The details of this method is:
+The details of this method are:
 
 1. Just pick up a new Chinese material.
 2. DO NOT prepare!
